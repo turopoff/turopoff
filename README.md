@@ -1,3 +1,3 @@
 # HELLO WORLD
 
-https://t.me/turopoff
+https://t.me/nurpoolat
